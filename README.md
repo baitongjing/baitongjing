@@ -9,4 +9,4 @@
 
 ---
 
-**喂它一口：** [爱发电 · 白彤鲸](https://ifdian.net/a/baitongjing)
+**喂它一口：** [爱发电 · 白彤鲸](认证中)(https://ifdian.net/a/baitongjing)
